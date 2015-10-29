@@ -1,1 +1,1 @@
-# bladimir
+#  waldo condori quispe
